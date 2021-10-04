@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ZerOIIIIIIIIIIIIIII
+- 👀 I’m interested in anime
+- 📫 How to reach me: no way
